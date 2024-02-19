@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Deepu2465
+- 👋 Hi, I’m @Deepz_077
 - 👀 I’m interested in IT related Works
 - 🌱 I’m currently learning BCA
 - 💞️ I’m looking to collaborate on ...
